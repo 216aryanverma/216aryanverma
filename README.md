@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Aryan Verma
 
-> Warning: The content below is going to be casual and contain some "not really that bad actually fr" bad wording. Read at your own risk 😅
+> Warning: The content below is going to be casual and contain some "not really that bad actually fr" bad wording. Read at your own risk.
 
 **BCA Student | Aspiring Cybersecurity Engineer**
 
