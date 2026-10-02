@@ -1,6 +1,7 @@
 # Hi there 👋, I'm Aryan Verma
 
 > Warning: The content below is going to be casual and contain some "not really that bad actually fr" bad wording. Read at your own risk 😅
+
 **BCA Student | Aspiring Cybersecurity Engineer**
 
 I'm a tech enthusiast whos obsessed with PCs or anything related to tech. I am currently pursuing my BCA at Integral University and sharpening my coding skills to get into a tech field.
