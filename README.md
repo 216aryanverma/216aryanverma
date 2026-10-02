@@ -1,4 +1,4 @@
-> **⚠️Warning: The content below is going to be casual and contain some "not really that bad actually" bad wording. Read at your own risk 😅
+> Warning: The content below is going to be casual and contain some "not really that bad actually fr" bad wording. Read at your own risk 😅
 # Hi there 👋, I'm Aryan Verma
 
 **BCA Student | Aspiring Cybersecurity Engineer**
